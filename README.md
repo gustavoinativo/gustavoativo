@@ -9,3 +9,6 @@ Meu nome é Gustavo
 ### você entrar em um contato comigo 📫
 
 00001102779684sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/ZCxwVKNGulcAAAAd/carlos-sumar%C3%A9.gif)
+
